@@ -1,1 +1,1 @@
-# make pr and get t shirt
+# make pr and get t shirterr
